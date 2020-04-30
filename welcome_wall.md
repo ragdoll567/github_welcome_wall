@@ -197,3 +197,5 @@ May Your Heart be Fearless, Mind Fierce and Spirit Free.
 <br>
 "When nothing seems to help, I go back and look at the stonecutter hammering away at his rock perhaps a hundred times without as much as a crack showing in it. Yet at the hundred and first blow it will split in two, and I know it was not that blow that did it — but all that had gone before."
 <br>
+<br>
+Don't be afraid of doing imperfectly, none's perfect, just do your best, and be confident about your work. Don't be sad because of other people's saying it's not good enough, you know you have done what you can, let their words to help you get better instead of letting you down. I hope you all the best along your way to dreams.
